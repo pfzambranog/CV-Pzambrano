@@ -1,1 +1,1 @@
-Curriculun Vitae Pedro Zambrano.
+CV Vitae Pedro Zambrano.
